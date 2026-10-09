@@ -206,4 +206,4 @@ Grammatica is offered as a full free version, providing all features and updates
 Take your Spanish writing to the next level with Grammatica — **download now for free!**
 
 ---
-**Last updated:** 2026-10-09 02:50:03 UTC
+**Last updated:** 2026-10-09 10:05:34 UTC
